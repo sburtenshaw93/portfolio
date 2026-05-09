@@ -3,12 +3,19 @@
 I would like to start this with these images first to express my feelings while watching this video. 
 
 ![alt text](images/developers.png)
+
 ![alt text](images/ummmm.png)
+
 ![alt text](images/nick-miller-part-1.png)
+
 ![alt text](images/nick-miller-part-2.png)
+
 ![alt text](images/nick-miller-part-3.png)
+
 ![alt text](images/peanut-butter.png)
+
 ![alt text](images/nick-miller-part-4.png)
+
 ![alt text](images/nick-miller-part-5.png)
 
 ## My Reflection
